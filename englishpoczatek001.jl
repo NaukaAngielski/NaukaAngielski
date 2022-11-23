@@ -156,3 +156,26 @@ slighty - nieznacznie, nieco
 slighty - nieznacznie, nieco
 slighty - nieznacznie, nieco 
 slighty - nieznacznie, nieco 
+slighty - nieznacznie, nieco 
+slighty - nieznacznie, nieco 
+slighty - nieznacznie, nieco 
+slighty - nieznacznie, nieco 
+slighty - nieznacznie, nieco 
+slighty - nieznacznie, nieco 
+slighty - nieznacznie, nieco
+slighty - nieznacznie, nieco 
+slighty - nieznacznie, nieco 
+slighty - nieznacznie, nieco 
+slighty - nieznacznie, nieco 
+SLIGHTY - NIEZNACZNIE, NIECO 
+SLIGHTY - NIEZNACZNIE, NIECO 
+SLIGHTY - NIEZNACZNIE, NIECO 
+SLIGHTY - NIEZNACZNIE, NIECO 
+SLIGHTY - NIEZNACZNIE, NIECO 
+SLIGHTY - NIEZNACZNIE, NIECO 
+CONTRARY - PRZECIWNIE 
+contrary - przeciwnie 
+contrary - przeciwnie 
+contrary - przeciwnie 
+contrary - przeciwnie 
+contrary - przeciwnie 
